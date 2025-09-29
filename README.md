@@ -4,7 +4,7 @@
 
 ### ZOOM Link
 
-https://msutexas-edu.zoom.us/j/9403974439
+https://msutexas-edurr.zoom.us/j/9403974439
 
 ## Office Hours
 
